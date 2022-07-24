@@ -2,7 +2,7 @@
 
 Deze PDF's horen bij de respectievelijke videos op YouTube van mijn oplossingen voor ijkingsproeven voor de toegang tot de universiteit.
 
-## Videos arts ##
+## Videos ##
 ### 2022 ###
 * Burgerlijk_ingenieur / Wiskunde / Fysica juli 2022 vragen 1-10: https://youtu.be/jx3TMvKy8vE
 * Burgerlijk_ingenieur / Wiskunde / Fysica juli 2022 vragen 11-20: https://youtu.be/EyDsPhCV2-U
