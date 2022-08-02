@@ -11,7 +11,6 @@ Deze PDF's horen bij de respectievelijke videos op YouTube van mijn oplossingen 
 ### 2021 ###
 * Burgerlijk_ingenieur / Wiskunde / Fysica juli 2021 vragen 1-11: https://youtu.be/iodXKrVl8Lk
 * Burgerlijk_ingenieur / Wiskunde / Fysica juli 2021 vragen 12-22: https://youtu.be/TieOkHoQKF0
-
 * Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2021 vragen 1-11: https://youtu.be/lj4zEVLRCRk
 * Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2021 vragen 12-22: https://youtu.be/cmImITaNLbw
 
