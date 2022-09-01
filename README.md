@@ -28,5 +28,10 @@ Deze PDF's horen bij de respectievelijke videos op YouTube van mijn oplossingen 
 * Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2019 vragen 11-20: https://youtu.be/A9iWD1ULYwg
 * Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2019 vragen 21-30: https://youtu.be/pNljUADi_LQ
 
+### 2019 ###
+* Burgerlijk_ingenieur / Wiskunde / Fysica september 2018 vragen 1-10: https://youtu.be/TkSv41twVbc
+* Burgerlijk_ingenieur / Wiskunde / Fysica september 2018 vragen 11-20: https://youtu.be/dEC8XPw5uRk
+* Burgerlijk_ingenieur / Wiskunde / Fysica september 2018 vragen 21-30: https://youtu.be/Ag2tWj-fNAA
+
 ## Officieel ##
 U kunt de vragen vinden op: https://www.ijkingstoets.be/
