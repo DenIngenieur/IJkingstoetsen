@@ -7,6 +7,9 @@ Deze PDF's horen bij de respectievelijke videos op YouTube van mijn oplossingen 
 * Burgerlijk_ingenieur / Wiskunde / Fysica juli 2022 vragen 1-10: https://youtu.be/jx3TMvKy8vE
 * Burgerlijk_ingenieur / Wiskunde / Fysica juli 2022 vragen 11-20: https://youtu.be/EyDsPhCV2-U
 * Burgerlijk_ingenieur / Wiskunde / Fysica juli 2022 vragen 21-30: https://youtu.be/rSpE5VwfYO4
+* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2022 vragen 1-10: https://youtu.be/Yj8N7y1lcIc
+* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2022 vragen 11-20: https://youtu.be/Q3vK3aZQDZg
+* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2022 vragen 21-30: https://youtu.be/LcQnNgvO0J4
 
 ### 2021 ###
 * Burgerlijk_ingenieur / Wiskunde / Fysica juli 2021 vragen 1-11: https://youtu.be/iodXKrVl8Lk
