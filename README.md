@@ -32,6 +32,9 @@ Deze PDF's horen bij de respectievelijke videos op YouTube van mijn oplossingen 
 * Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2019 vragen 21-30: https://youtu.be/pNljUADi_LQ
 
 ### 2018 ###
+* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2018 vragen 1-10: https://youtu.be/OEgHhBN96hM
+* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2018 vragen 11-20: https://youtu.be/NcDPDJoyozs
+* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2018 vragen 21-30: https://youtu.be/RRYplvcSv1c
 * Burgerlijk_ingenieur / Wiskunde / Fysica september 2018 vragen 1-10: https://youtu.be/TkSv41twVbc
 * Burgerlijk_ingenieur / Wiskunde / Fysica september 2018 vragen 11-20: https://youtu.be/dEC8XPw5uRk
 * Burgerlijk_ingenieur / Wiskunde / Fysica september 2018 vragen 21-30: https://youtu.be/Ag2tWj-fNAA
