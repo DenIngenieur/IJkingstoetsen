@@ -3,41 +3,28 @@
 Deze PDF's horen bij de respectievelijke videos op YouTube van mijn oplossingen voor ijkingsproeven voor de toegang tot de universiteit.
 
 ## Videos ##
+### 2023 ###
+* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2023: https://www.youtube.com/playlist?list=PLGQD6QSQ70Tdjvzr8mlT77iY8XcjN2JbF
+  
 ### 2022 ###
-* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2022 vragen 1-10: https://youtu.be/jx3TMvKy8vE
-* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2022 vragen 11-20: https://youtu.be/EyDsPhCV2-U
-* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2022 vragen 21-30: https://youtu.be/rSpE5VwfYO4
-* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2022 vragen 1-10: https://youtu.be/Yj8N7y1lcIc
-* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2022 vragen 11-20: https://youtu.be/Q3vK3aZQDZg
-* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2022 vragen 21-30: https://youtu.be/LcQnNgvO0J4
+* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2022: https://www.youtube.com/playlist?list=PLGQD6QSQ70TfgyVT_bQFXi7hDs6MKQJnT
+* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2022: https://www.youtube.com/playlist?list=PLGQD6QSQ70TcrYTVsgsc36ysZDZ3YB_lI
 
 ### 2021 ###
-* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2021 vragen 1-11: https://youtu.be/iodXKrVl8Lk
-* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2021 vragen 12-22: https://youtu.be/TieOkHoQKF0
-* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2021 vragen 1-11: https://youtu.be/lj4zEVLRCRk
-* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2021 vragen 12-22: https://youtu.be/cmImITaNLbw
+* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2021: https://www.youtube.com/playlist?list=PLGQD6QSQ70Te37YPTodVVhD0lo3QQj_8P
+* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2021: https://www.youtube.com/playlist?list=PLGQD6QSQ70TfyQmyGSaMYt3URk_5_4XcR
 
 ### 2020 ###
-* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2020 vragen 1-11: https://youtu.be/u1C7Ly1KSVQ
-* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2020 vragen 12-22: https://youtu.be/mQTgO04u9kk
-* Burgerlijk_ingenieur / Wiskunde / Fysica september 2020 vragen 1-11: https://youtu.be/wMEq63_5cFE
-* Burgerlijk_ingenieur / Wiskunde / Fysica september 2020 vragen 12-22: https://youtu.be/-OKan4ETgR8
+* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2020: https://www.youtube.com/playlist?list=PLGQD6QSQ70TfmNS97oq_d2qj-XvCZ9LU_
+* Burgerlijk_ingenieur / Wiskunde / Fysica september 2020: https://www.youtube.com/playlist?list=PLGQD6QSQ70TdD1knmEqKkkKONoA5ulcX5
 
 ### 2019 ###
-* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2019 vragen 1-10: https://youtu.be/gxeWJxNRuds
-* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2019 vragen 11-20: https://youtu.be/TkXRstqJ1-0
-* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2019 vragen 21-30: https://youtu.be/vksjVed8PrQ
-* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2019 vragen 1-10: https://youtu.be/geHWmybRg58
-* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2019 vragen 11-20: https://youtu.be/A9iWD1ULYwg
-* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2019 vragen 21-30: https://youtu.be/pNljUADi_LQ
+* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2019: https://www.youtube.com/playlist?list=PLGQD6QSQ70TfiEDNk1sBLzdx8Kre9KrOK
+* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2019: https://www.youtube.com/playlist?list=PLGQD6QSQ70Tf0xKCwKyVnFb_mvmhCdThf
 
 ### 2018 ###
-* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2018 vragen 1-10: https://youtu.be/OEgHhBN96hM
-* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2018 vragen 11-20: https://youtu.be/NcDPDJoyozs
-* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2018 vragen 21-30: https://youtu.be/RRYplvcSv1c
-* Burgerlijk_ingenieur / Wiskunde / Fysica september 2018 vragen 1-10: https://youtu.be/TkSv41twVbc
-* Burgerlijk_ingenieur / Wiskunde / Fysica september 2018 vragen 11-20: https://youtu.be/dEC8XPw5uRk
-* Burgerlijk_ingenieur / Wiskunde / Fysica september 2018 vragen 21-30: https://youtu.be/Ag2tWj-fNAA
+* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2018: https://www.youtube.com/playlist?list=PLGQD6QSQ70TfCIXZwt3TG5x07yQnRrxso
+* Burgerlijk_ingenieur / Wiskunde / Fysica september 2018: https://www.youtube.com/playlist?list=PLGQD6QSQ70TdfyOikycnnnBpA4byf_DNf
 
 ## Officieel ##
 U kunt de vragen vinden op: https://www.ijkingstoets.be/
