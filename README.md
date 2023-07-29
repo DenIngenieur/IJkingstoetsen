@@ -15,7 +15,7 @@ Deze PDF's horen bij de respectievelijke videos op YouTube van mijn oplossingen 
 * Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2021: https://www.youtube.com/playlist?list=PLGQD6QSQ70TfyQmyGSaMYt3URk_5_4XcR
 
 ### 2020 ###
-* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2020: https://www.youtube.com/playlist?list=PLGQD6QSQ70TfmNS97oq_d2qj-XvCZ9LU_
+* Burgerlijk_ingenieur / Wiskunde / Fysica augustus 2020: "https://www.youtube.com/playlist?list=PLGQD6QSQ70TfmNS97oq_d2qj-XvCZ9LU_"
 * Burgerlijk_ingenieur / Wiskunde / Fysica september 2020: https://www.youtube.com/playlist?list=PLGQD6QSQ70TdD1knmEqKkkKONoA5ulcX5
 
 ### 2019 ###
