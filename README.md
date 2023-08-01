@@ -4,7 +4,7 @@ Deze PDF's horen bij de respectievelijke videos op YouTube van mijn oplossingen 
 
 ## Videos ##
 ### 2023 ###
-* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2023: https://www.youtube.com/playlist?list=PLGQD6QSQ70Tdjvzr8mlT77iY8XcjN2JbF
+* Burgerlijk_ingenieur / Wiskunde / Fysica juli 2023: [ir Wi Na juli 2023](https://www.youtube.com/playlist?list=PLGQD6QSQ70Tdjvzr8mlT77iY8XcjN2JbF)
   
 ### 2022 ###
 * Burgerlijk_ingenieur / Wiskunde / Fysica juli 2022: https://www.youtube.com/playlist?list=PLGQD6QSQ70TfgyVT_bQFXi7hDs6MKQJnT
