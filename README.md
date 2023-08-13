@@ -6,12 +6,12 @@ Deze PDF's horen bij de respectievelijke videos op YouTube van mijn oplossingen 
 ### 2023 ###
 * [Biomedische wetenschappen en Farmaceutische wetenschappen juli 2023](https://www.youtube.com/playlist?list=PLGQD6QSQ70Te9RAqlbNtbQ7XPn0JnWhMK).
 Bemerk dat veel van deze oefeningen dezelfde zijn als die van industrieel ingenieur biowetenschappen en bio-industriële wetenschappen, plus een paar van Burgerlijk ingenieur / Wiskunde / Fysica. Ik heb die videos natuurlijk geen twee keer gemaakt, maar de bestaande in de playlist gestoken. De volgorde van de playlist komt wel overeen met die van de vragen in de ijkingstoets. 
-* [Industrieel ingenieur biowetenschappen en bio-industriële wetenschappen juli 2023](https://www.youtube.com/playlist?list=PLGQD6QSQ70TdKgC-YDM1HQ3XZPeSqcfTP)
+* [Industrieel ingenieur biowetenschappen en bio-industriële wetenschappen juli 2023](https://www.youtube.com/playlist?list=PLGQD6QSQ70TdKgC-YDM1HQ3XZPeSqcfTP). Deze vragen zijn ook geschikt als voorbereiding voor iedere soort industrieel ingenieur.
 * [Burgerlijk ingenieur / Wiskunde / Fysica juli 2023](https://www.youtube.com/playlist?list=PLGQD6QSQ70Tdjvzr8mlT77iY8XcjN2JbF)
   
 ### 2022 ###
-* [Industrieel ingenieur biowetenschappen en bio-industriële wetenschappen juli 2022](https://www.youtube.com/playlist?list=PLGQD6QSQ70Tc7XsyR9XfOTk1WssM9VIeo)
-* [Industrieel ingenieur biowetenschappen en bio-industriële wetenschappen augustus 2022](https://www.youtube.com/playlist?list=PLGQD6QSQ70Tflec1GJBfL-7q9e5LZ7Ypz)
+* [Industrieel ingenieur biowetenschappen en bio-industriële wetenschappen juli 2022](https://www.youtube.com/playlist?list=PLGQD6QSQ70Tc7XsyR9XfOTk1WssM9VIeo). Deze vragen zijn ook geschikt als voorbereiding voor iedere soort industrieel ingenieur.
+* [Industrieel ingenieur biowetenschappen en bio-industriële wetenschappen augustus 2022](https://www.youtube.com/playlist?list=PLGQD6QSQ70Tflec1GJBfL-7q9e5LZ7Ypz). Deze vragen zijn ook geschikt als voorbereiding voor iedere soort industrieel ingenieur.
 * [Burgerlijk ingenieur / Wiskunde / Fysica juli 2022](https://www.youtube.com/playlist?list=PLGQD6QSQ70TfgyVT_bQFXi7hDs6MKQJnT)
 * [Burgerlijk ingenieur / Wiskunde / Fysica augustus 2022](https://www.youtube.com/playlist?list=PLGQD6QSQ70TcrYTVsgsc36ysZDZ3YB_lI)
 
