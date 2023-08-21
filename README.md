@@ -19,6 +19,7 @@ Bemerk dat veel van deze oefeningen dezelfde zijn als die van industrieel ingeni
 ### 2021 ###
 * [Industrieel ingenieur biowetenschappen en bio-industriële wetenschappen juli 2021](https://www.youtube.com/playlist?list=PLGQD6QSQ70Tc0iDeDX1icYwVMoSu8nrpI). Deze vragen zijn ook geschikt als voorbereiding voor iedere soort industrieel ingenieur.
 * [Chemie / Biochemie & Biotechnologie / Biologie / Geologie / Geografie & Geomatica juli 2021](https://www.youtube.com/playlist?list=PLGQD6QSQ70TdhuBjixC_U8MJzBNtI8Zro)
+* [Biomedische wetenschappen / Farmaceutische wetenschappen juli 2021](https://www.youtube.com/playlist?list=PLGQD6QSQ70Tea7MuG5zZHx2x8UAo1ANCp)
 * [Burgerlijk ingenieur / Wiskunde / Fysica juli 2021](https://www.youtube.com/playlist?list=PLGQD6QSQ70Te37YPTodVVhD0lo3QQj_8P)
 * [Burgerlijk ingenieur / Wiskunde / Fysica augustus 2021](https://www.youtube.com/playlist?list=PLGQD6QSQ70TfyQmyGSaMYt3URk_5_4XcR)
 
