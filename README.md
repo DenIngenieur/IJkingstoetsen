@@ -12,10 +12,13 @@ Bemerk dat veel van deze oefeningen dezelfde zijn als die van industrieel ingeni
 ### 2022 ###
 * [Industrieel ingenieur biowetenschappen en bio-industriële wetenschappen juli 2022](https://www.youtube.com/playlist?list=PLGQD6QSQ70Tc7XsyR9XfOTk1WssM9VIeo). Deze vragen zijn ook geschikt als voorbereiding voor iedere soort industrieel ingenieur.
 * [Industrieel ingenieur biowetenschappen en bio-industriële wetenschappen augustus 2022](https://www.youtube.com/playlist?list=PLGQD6QSQ70Tflec1GJBfL-7q9e5LZ7Ypz). Deze vragen zijn ook geschikt als voorbereiding voor iedere soort industrieel ingenieur.
+* [Chemie / Biochemie & Biotechnologie / Biologie / Geologie / Geografie & Geomatica juli 2022](https://www.youtube.com/playlist?list=PLGQD6QSQ70TcaAULO04beL1Q2qDmv-69k)
 * [Burgerlijk ingenieur / Wiskunde / Fysica juli 2022](https://www.youtube.com/playlist?list=PLGQD6QSQ70TfgyVT_bQFXi7hDs6MKQJnT)
 * [Burgerlijk ingenieur / Wiskunde / Fysica augustus 2022](https://www.youtube.com/playlist?list=PLGQD6QSQ70TcrYTVsgsc36ysZDZ3YB_lI)
 
 ### 2021 ###
+* [Industrieel ingenieur biowetenschappen en bio-industriële wetenschappen juli 2021](https://www.youtube.com/playlist?list=PLGQD6QSQ70Tc0iDeDX1icYwVMoSu8nrpI). Deze vragen zijn ook geschikt als voorbereiding voor iedere soort industrieel ingenieur.
+* [Chemie / Biochemie & Biotechnologie / Biologie / Geologie / Geografie & Geomatica juli 2021](https://www.youtube.com/playlist?list=PLGQD6QSQ70TdhuBjixC_U8MJzBNtI8Zro)
 * [Burgerlijk ingenieur / Wiskunde / Fysica juli 2021](https://www.youtube.com/playlist?list=PLGQD6QSQ70Te37YPTodVVhD0lo3QQj_8P)
 * [Burgerlijk ingenieur / Wiskunde / Fysica augustus 2021](https://www.youtube.com/playlist?list=PLGQD6QSQ70TfyQmyGSaMYt3URk_5_4XcR)
 
