@@ -6,8 +6,7 @@ Deze PDF's horen bij de respectievelijke videos op YouTube van mijn oplossingen 
 ### 2023 ###
 * [Bio-ingenieur juli 2023](https://www.youtube.com/playlist?list=PLGQD6QSQ70TdPG7sIybfuPCBIFKTsx9Yp).
 * [Industrieel ingenieur biowetenschappen en bio-industriële wetenschappen juli 2023](https://www.youtube.com/playlist?list=PLGQD6QSQ70TdKgC-YDM1HQ3XZPeSqcfTP). Deze vragen zijn ook geschikt als voorbereiding voor iedere soort industrieel ingenieur.
-* [Biomedische wetenschappen en Farmaceutische wetenschappen juli 2023](https://www.youtube.com/playlist?list=PLGQD6QSQ70Te9RAqlbNtbQ7XPn0JnWhMK).
-Bemerk dat veel van deze oefeningen dezelfde zijn als die van industrieel ingenieur biowetenschappen en bio-industriële wetenschappen, plus een paar van Burgerlijk ingenieur / Wiskunde / Fysica. Ik heb die videos natuurlijk geen twee keer gemaakt, maar de bestaande in de playlist gestoken. De volgorde van de playlist komt wel overeen met die van de vragen in de ijkingstoets. 
+* [Biomedische wetenschappen en Farmaceutische wetenschappen juli 2023](https://www.youtube.com/playlist?list=PLGQD6QSQ70Te9RAqlbNtbQ7XPn0JnWhMK)
 * [Burgerlijk ingenieur / Wiskunde / Fysica juli 2023](https://www.youtube.com/playlist?list=PLGQD6QSQ70Tdjvzr8mlT77iY8XcjN2JbF)
   
 ### 2022 ###
