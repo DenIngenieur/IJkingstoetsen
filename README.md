@@ -11,6 +11,7 @@ Deze vragen zijn ook geschikt als voorbereiding voor iedere soort industrieel in
 * [Burgerlijk ingenieur / Wiskunde / Fysica juli 2023](https://www.youtube.com/playlist?list=PLGQD6QSQ70Tdjvzr8mlT77iY8XcjN2JbF)
   
 ### 2022 ###
+* [Bio-ingenieur juli 2022](https://www.youtube.com/playlist?list=PLGQD6QSQ70TfXZpERjiDvhLrfDm-GPa4Q).
 * [Bio-ingenieur augustus 2022](https://www.youtube.com/playlist?list=PLGQD6QSQ70TdVCd2TtnTpY5lULQs8xjCA).
 * [Industrieel ingenieur biowetenschappen en bio-industriële wetenschappen juli 2022](https://www.youtube.com/playlist?list=PLGQD6QSQ70Tc7XsyR9XfOTk1WssM9VIeo). 
 Deze vragen zijn ook geschikt als voorbereiding voor iedere soort industrieel ingenieur.
